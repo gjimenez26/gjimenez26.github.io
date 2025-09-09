@@ -1,0 +1,6 @@
+[Source_1](https://people.com/hiker-wanders-off-trail-gets-lost-called-911-phone-died-11730144?)
+Richard de Reyna, a 57-year-old hiker, became lost on the Kilkenny Ridge Trail in New Hampshire after his phone battery drained. He had been using his phone for navigation, which contributed to the battery depletion. After calling 911, his phone died, leaving him without a means of communication. Fortunately, he was rescued hours later, though he was mildly hypothermic
+Luckly he had dialed 911 before his phone died but just imagine if he hadn't 
+[Source_2](https://en.wikipedia.org/wiki/Death_of_Jay_Slater?.com)
+Jay Slater, a 19-year-old British tourist, was last heard from when he reported being lost and needing water. He mentioned his phone battery was low before the call ended. His body was later found in a ravine, and the inquest concluded his death was accidental due to a fall
+Jay unfortunately was probably dehydrated and maybe passed out and hit his head on something leading him to bleed out if only his phone was charged then he could have told the police where he was at and maybe he would still be here today 
