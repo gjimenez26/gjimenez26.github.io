@@ -4,3 +4,5 @@ Luckly he had dialed 911 before his phone died but just imagine if he hadn't
 [Source_2](https://en.wikipedia.org/wiki/Death_of_Jay_Slater?.com)
 Jay Slater, a 19-year-old British tourist, was last heard from when he reported being lost and needing water. He mentioned his phone battery was low before the call ended. His body was later found in a ravine, and the inquest concluded his death was accidental due to a fall
 Jay unfortunately was probably dehydrated and maybe passed out and hit his head on something leading him to bleed out if only his phone was charged then he could have told the police where he was at and maybe he would still be here today 
+[Soruce 3](https://people.com man-missing-for-month-found-alive-mom-never-lost-hope-exclusive-8732267?)
+Another case of another man getting lost in a national park without his phone cahrged how helpful would it have been if he had his phone on him charged?
